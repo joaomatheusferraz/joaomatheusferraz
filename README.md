@@ -17,4 +17,4 @@ Estudante de **Sistemas de Informação**, com interesse em seguir carreira em *
 
 ### Vamos conversar?
 
-Conheça os projetos acima e entre em contato pelo [meu perfil no GitHub](https://github.com/joaomatheusferraz).
+Para conversar sobre os projetos, use o e-mail ou os links de contato exibidos ao lado deste perfil.
